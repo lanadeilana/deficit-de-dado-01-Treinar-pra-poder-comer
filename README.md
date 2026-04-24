@@ -4,8 +4,8 @@
 > Análise de dados por trás da newsletter **Déficit de Dado**  
 > por [@lanadeilana](https://substack.com/@lanadeilana)
 
-📖 **Leia o artigo completo:** [Substack — Déficit de Dado, Ed. 001](https://substack.com/@lanadeilana)  
-💼 **LinkedIn:** [/lanadeilana](https://linkedin.com/in/lanadeilana)
+**Leia o artigo completo:** [Substack — Déficit de Dado, Ed. 001](https://substack.com/@lanadeilana)  
+**LinkedIn:** [/lanadeilana](https://linkedin.com/in/lanadeilana)
 
 ---
 
